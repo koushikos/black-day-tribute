@@ -23,4 +23,5 @@ No politics — only honor and respect.
 
 ---
 
-🇮🇳 Salute to the martyrs.
+ INDIANS Salute to the martyrs.
+
